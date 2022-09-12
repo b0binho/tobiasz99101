@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tobiasz99101
 - 👀 I’m interested in coding   
 - 🌱 I’m currently learning coding  
-- 💞️ I’m looking to collaborate on twoja stara  
+- 💞️ I’m looking to collaborate on some nice hookers and cocaine 
 - 📫 How to reach me tobiasz20101993@gmail.com
 
 <!---
